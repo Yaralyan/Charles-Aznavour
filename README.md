@@ -1,0 +1,2 @@
+# Charles-Aznavour
+Charles Aznavour (born Shahnour Varinag Aznavourian French pronunciation: ​[ʃaʁl aznavuʁ]; born 22 May 1924)>>>s a French and Armenian[4] singer, songwriter, actor, public activist and diplomat. Aznavour is known for his unique tenor[5] voice: clear and ringing in its upper reaches, with gravelly and profound low notes. He has written more than 1,200 songs, sung in seven languages,[6] sold more than 180 million records.[7]
